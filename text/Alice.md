@@ -29,3 +29,5 @@ never before seen a rabbit with either a waistcoat-pocket, or a watch
 to take out of it, and burning with curiosity, she ran across the field
 after it, and fortunately was just in time to see it pop down a large
 rabbit-hole under the hedge.
+
+After all this was happening, the story ended with an ending.
