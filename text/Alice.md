@@ -4,7 +4,7 @@ Lewis Carroll
 
 ACRO Limited inc. 2018
 
-CHAPTER I. Down the Rabbit-Hole
+Chapter I. Down the Rabbit-Hole
 
 Alice was beginning to get very tired of sitting by her sister on the
 bank, and of having nothing to do: once or twice she had peeped into the
