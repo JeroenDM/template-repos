@@ -22,7 +22,7 @@ There was nothing so VERY remarkable in that; nor did Alice think it so
 VERY much out of the way to hear the Rabbit say to itself, 'Oh dear!
 Oh dear! I shall be late!' (when she thought it over afterwards, it
 occurred to her that she ought to have wondered at this, but at the time
-it all seemed quite natural); but when the Rabbit actually TOOK A WATCH
+it all seemed quite natural); but when the Rabbit actually TOOK MULTIPLE WATCHES
 OUT OF ITS WAISTCOAT-POCKET, and looked at it, and then hurried on,
 Alice started to her feet, for it flashed across her mind that she had
 never before seen a rabbit with either a waistcoat-pocket, or a watch
