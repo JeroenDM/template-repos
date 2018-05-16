@@ -4,7 +4,7 @@ Lewis Carroll
 
 ACRO Limited inc. 2018
 
-CHAPTER I. Down the Rabbit-Hole
+Chapter I. Down the Rabbit-Hole
 
 Alice was beginning to get very tired of sitting by her sister on the
 bank, and of having nothing to do: once or twice she had peeped into the
@@ -18,12 +18,12 @@ of making a daisy-chain would be worth the trouble of getting up and
 picking the daisies, when suddenly a White Rabbit with pink eyes ran
 close by her.
 
-There was nothing so VERY remarkable in that; nor did Alice think it so
+There was nothing so very remarkable in that; nor did Alice think it so
 VERY much out of the way to hear the Rabbit say to itself, 'Oh dear!
 Oh dear! I shall be late!' (when she thought it over afterwards, it
 occurred to her that she ought to have wondered at this, but at the time
-it all seemed quite natural); but when the Rabbit actually TOOK MULTIPLE WATCHES
-OUT OF ITS WAISTCOAT-POCKET, and looked at it, and then hurried on,
+it all seemed quite natural); but when the Rabbit actually took multiple watches
+out of its waistcoat-pocket, and looked at it, and then hurried on,
 Alice started to her feet, for it flashed across her mind that she had
 never before seen a rabbit with either a waistcoat-pocket, or a watch
 to take out of it, and burning with curiosity, she ran across the field
