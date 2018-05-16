@@ -2,7 +2,7 @@ Alice's Adventures in Wonderland
 
 Lewis Carroll
 
-THE MILLENNIUM FULCRUM EDITION 3.0
+ACRO Limited inc. 2018
 
 CHAPTER I. Down the Rabbit-Hole
 
